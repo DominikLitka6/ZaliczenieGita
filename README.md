@@ -6,3 +6,5 @@ Last name: Litka
 
 Index number: 45650
 
+Email: arcticdominik@gmail.com
+
